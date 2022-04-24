@@ -22,12 +22,12 @@ You might find some tech tutorials, gaming vids and other vids in my channel. St
 ### Find me @
 ![follow me](https://raw.githubusercontent.com/slimsam4u/slimsam4u/main/20220424_110440.jpg)
 
-🖇️ [my blog](https://Slimsam4u.blogspot.com) </br>
+🐈‍⬛ [my Blog](https://Slimsam4u.blogspot.com) </br>
 🎥 [youtube.com/SlimSam](https://youtube.com/SlimSam) </br>
-🍭 [SLIM'S DISCORD](https://discord.gg/NrgxDUTcSf) </br>
+🕷️ [SLIM'S DISCORD](https://discord.gg/NrgxDUTcSf) </br>
 
 🖤 [my Tumblr](http://alariesxm.tumblr.com)
 
 
-### thanks, bye.
+### thanks for reading, bye.
 ![goodbye](https://raw.githubusercontent.com/slimsam4u/slimsam4u/main/20220424_105737.png)
